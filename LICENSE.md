@@ -1,4 +1,4 @@
-
+Enhance your Bitdefender VPN experience with new Bitdefender VPN Module | obfuscation + server-switching, the #1 module. Includes obfuscation and server-switching for a safer and
 
 
 
